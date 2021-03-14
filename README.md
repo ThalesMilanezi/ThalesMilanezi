@@ -1,3 +1,4 @@
+![Thales Milanezi](https://user-images.githubusercontent.com/58155127/111083307-b1cb3e00-84eb-11eb-8aa0-892d5fd191fe.gif)
 
 # Olá, sou Thales Milanezi
 
